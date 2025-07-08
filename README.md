@@ -29,6 +29,6 @@
 
 结语
 如果你正在寻找日本AV免费资源，不需要再浪费时间到处搜索，来我们平台，你可以免费观看最新、最热门的日本AV影片。我们提供高清无广告的观看体验，确保你拥有最高品质的观影享受。赶紧开始体验吧，尽享精彩内容！
-<span style="display:none;">[Canonical link] ( ）</span>
+<span style="display:none;">[Canonical link] (https://github.com/dtn2611/190000 ）</span>
 
 
